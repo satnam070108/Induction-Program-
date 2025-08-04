@@ -10,7 +10,7 @@
 #### Mobile Num.        : 9465073990
 #### Email              : satnam04597@gmail.com 
 ## Day 1 ( 30 July 2025 )
-###              (Shabad Kirtan)
+      (Shabad Kirtan)
                           GNDE (GURU NANAK DEV  ENGINEERING) College organized a Shabad Kirtan and Ardas program on July 30, 2025 in college gurudwara saib to celebrate the start of the new semester and to congratulate the students of the first semester of the batch for their academic excellence. I noticed that the shape of the Gurudwara Sahib of GNDE is like a ship, looking at the roof, it seems like we are in the ship of God. About an hour after the ceremony ended, it seemed like this. Today, we traveled on this ship for about an hour. The mind found peace through the recitation heard in this program and the words sung by the Kirtani Jatha.
          #### After the end of the Program, we all had tea and as per the schedule, we went to the college auditorium.
 ### ( In Auditorium )
