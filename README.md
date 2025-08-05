@@ -1,5 +1,5 @@
 # Induction-Program
-<color> #FFA500
+<color> #ffa500
 ## Activity Report of Induction Program 2025</color>
 ### DAY-1
 ### MY SELF
