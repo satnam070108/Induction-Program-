@@ -1,5 +1,5 @@
 # Induction-Program
-<color>#0000FF
+<color> #0000FF
 ## Activity Report of Induction Program 2025</color>
 ### DAY-1
 ### MY SELF
