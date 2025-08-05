@@ -1,5 +1,5 @@
 # Induction-Program
-<code style="blue : name_color">Activity Report of Induction Program 2025</code>
+<code style="color : name_blue">Activity Report of Induction Program 2025</code>
 ## Activity Report of Induction Program 2025
 ### DAY-1
 ### MY SELF
