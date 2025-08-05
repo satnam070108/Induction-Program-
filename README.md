@@ -2,7 +2,7 @@
 ## **Activity Report of Induction Program 2025**
 ### DAY-1
 ### MY SELF
-#### Name          : Satnam Singh
+#### Name          : **Satnam Singh**
 #### Father Name        : Chamkaur Singh
 #### Mother Name        : Charanjit Kaur 
 #### Branch.            :  Electrical 
