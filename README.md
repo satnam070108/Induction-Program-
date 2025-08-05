@@ -1,5 +1,5 @@
 # Induction-Program
-## ** Activity Report of Induction Program 2025 **
+## **Activity Report of Induction Program 2025**
 ### DAY-1
 ### MY SELF
 #### Name          : Satnam Singh
