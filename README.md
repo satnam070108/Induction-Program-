@@ -1,6 +1,5 @@
 # Induction-Program
-<color> #ffa500
-## Activity Report of Induction Program 2025</color>
+## ** Activity Report of Induction Program 2025 **
 ### DAY-1
 ### MY SELF
 #### Name          : Satnam Singh
