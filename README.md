@@ -24,10 +24,9 @@
 ####           After this, we were given a lecture by Dr. Arvind Dhingra. He introduced us to some aspects of life through some games and taught us how to live life through these games.And tell us how to make life beautiful in a very fun way.
 ##  *  Day 3 ( 4 Aug 2025 ) 
 ####          We all reached the college auditorium at 8.30 am as per the given schedule. The day also started with the name of God. After this, we were all told about the Cosmic Club, the main objective of this club and how to become a member of this club. In this club, various activities are organized by the students and the public, and awareness and college-related information is conveyed to them through various fun and humorous videos.
-
-
-
-
-
+##  *  Day 4 ( 5 Aug 2025 ) 
+####         The day's induction program started with Mrs. Shaffy Makker's lecture at 1:30 PM. She lectured us on Millets as a superfood. She familiarized us with its types, explaining their importance in modern human life and how they positively impact human lives. Additionally, she explained which millets aid in weight loss and which promote hormone growth, and so on. She also enlightened us on the proper usage and correct preparation methods. Finally, she concluded her lecture by describing millets as a wonderful and nutritious food.
+##  *  Day 5 ( 6 Aug 2025 ) 
+####      I was curious about my induction program and college. I went to auditorium and sit on my seat. The first lecture was conducted by Dr. Parminder Singh . This was about student welfare. He told us about various activities, library, physical games and scholarships. When it was completed, Dr. Manpreet Singh dropped a wonderful lecture. This was about Fitness and as an engineer students , we must care about our health. We went to stage for doing push ups. This was really awesome moment ever. We asked many questions about fitness to him and he answered very kindly. Later 3rd year NCC student conducted his lecture to us and told the value of NCC. Then the Brigadier P.S. Cheema Sirf got warm welcome by us. He was Lieutenant General and completely dressed that we saw. He delivered his valuable words to us. We had done some brain games. We listened his lecture carefully and enjoyed it.
                 
 
