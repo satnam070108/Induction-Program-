@@ -8,7 +8,6 @@
 #### Registration Num.  : 25101026
 #### Mobile Num.        : 9465073990
 #### Email              : satnam04597@gmail.com 
-![Alt text](https://https://github.com/satnam070108/Induction-Program-/blob/cda648bf355ae9e59562c6d646c1a62619c19f39/IMG_20250125_204515%20(2).png/path/to/image.png)
 ##  * Day 1 ( 30 July 2025 )
 ###      (Shabad Kirtan)
 ####                          GNDE (GURU NANAK DEV  ENGINEERING) College organized a Shabad Kirtan and Ardas program on July 30, 2025 in college gurudwara saib to celebrate the start of the new semester and to congratulate the students of the first semester of the batch for their academic excellence. I noticed that the shape of the Gurudwara Sahib of GNDE is like a ship, looking at the roof, it seems like we are in the ship of God. About an hour after the ceremony ended, it seemed like this. Today, we traveled on this ship for about an hour. The mind found peace through the recitation heard in this program and the words sung by the Kirtani Jatha.And in the end, we all ate the Karah Prasad.
@@ -31,5 +30,8 @@
 ##  *  Day 6 ( 7 Aug 2025 )
 ####   Today's induction program began with the name of God. After that, today's induction program started with Dr. Jasvir Singh Khanna (Incharge CML). He introduced us to CML. He made us aware of the activities taking place in CML. He told us that CML means a new and different way of thinking, to create something new, so that it can make the student's mind better and give birth to new ideas. Apart from this, he introduced us to Swayam, made us aware of the free courses in it, and concluded today's lecture by making us aware of how to run it. 
 ####      After this, we were lectured by Dr. Javir Singh Grewal (incharge NSS). He introduced us to the purpose of NSS. He told us that it does not only mean planting trees but also making people aware of the benefits of planting trees. He made us aware of the Loss caused by plastic and how it spoils and pollutes nature, and how it has a bad effect on the birds and animals in this nature. One unique thing about him was that he made us aware of his purpose with the help of Kirtani Jatha and some posts and a game created by him."
-                
+## IN LAST WORDS                
+####   The induction program has come to an end, and I would like to summarize what was covered during this program. Finally, I would like to say that it is essential to familiarize students with the objectives of the induction program so that they are not confused about which club, committee, or game to participate in, as new students are often unaware of these aspects.
+####       I also believe that there should be a day in the induction program where students can showcase their skills in front of everyone. Additionally, I think it's crucial to introduce students to the purpose of their being in college, the sacrifices their parents make to fulfill their aspirations, and connect them with the name of the Almighty, and introduce them to the significance of their attire, so that they understand the values and principles of this institution. So that connects them with the values and principles of our institution.
+###     Finally, I, Satnam Singh, would like to express my gratitude to our college Principal, Dr. Sahjpal Singh, our HOD, Madam Harpreet Kaur, and the entire staff for their support and guidance. Thank you all, and I bid you farewell.
 
